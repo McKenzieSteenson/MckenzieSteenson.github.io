@@ -4,7 +4,7 @@ As the great Michael Scott once said:
 
 > Guess what, I have flaws. What are they? Oh I don't know.
 > I sing in the shower.
-> Sometimes I spend too much time volunteering
+> Sometimes I spend too much time volunteering.
 > Occoasionally I'll hit somebody with my car.
 > So sue me."
 
