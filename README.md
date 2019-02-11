@@ -16,4 +16,4 @@ He also said:
 > I want people to be afraid of how much they love me.
 
 ![Image of Michael Scott]
-(https://i.pinimg.com/originals/67/98/05/67980559f98605ce30e162d192dd6d2b.jpg)
+(https://i.pinimg.com/originals/67/98/05/67980559f98605ce30e162d192dd6d2b.png)
