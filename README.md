@@ -1,4 +1,4 @@
-## Welcome to McKenzie Steenson's first edit of her GitHub page!
+## McKenzie Steenson Welcomes You
 
 As the great Michael Scott once said:
 
@@ -14,3 +14,6 @@ He also said:
 > Easy.
 > Both.
 > I want people to be afraid of how much they love me.
+
+![Image of Michael Scott]
+(https://i.pinimg.com/originals/67/98/05/67980559f98605ce30e162d192dd6d2b.jpg)
